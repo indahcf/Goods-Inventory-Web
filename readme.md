@@ -131,5 +131,5 @@ b. Pegawai
     ![Screenshot (1078)](https://github.com/user-attachments/assets/1745a59c-796e-40ce-8860-af030362454b)
     
     ![Screenshot (1079)](https://github.com/user-attachments/assets/afd1d910-3b09-4a2c-b49f-a14ae09b379e)
-ssets/f304f8da-1b44-4788-a308-b9cded59c18d)
+
 		
